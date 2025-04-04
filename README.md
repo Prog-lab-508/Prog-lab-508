@@ -2,7 +2,7 @@
 - 👀 I’m interested in  html, css and js
 - 🌱 I’m currently learning help me pleas
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me 8(968)9350202
 - ⚡ Fun fact: i am cheerful
 
 <!---
